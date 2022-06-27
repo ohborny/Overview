@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ohborny or Elise Oborny
 - 👀 I’m interested in the outdoors, software, board games, and learning! 
 - 🌱 I’m currently learning how to best showcase my skills.
-- 💞️ I’m looking to collaborate on anything and everything! 
+- 💞️ I’m looking to collaborate on anything and everything! But be careful, I am excellent at breaking things and putting it back together.
 - 📫 How to reach me elise.oborny@gmail.com
 
 <!---
